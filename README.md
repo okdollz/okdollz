@@ -10,6 +10,7 @@ BYI:
 -I have dyslexia and a spelling problem. Please don't make fun of me.       
 -I don't like being around negative people. I will block you for 24 hours. Don't take it to heart, you'll be unblocked.       
 -Don't ask me anything that you wouldn't ask a stranger in real life. You don't know me as I don't know you. Let's respect each other as strangers.       
+-I don't mind shipping. Feel free to do whatever while we're in cos! I. however, don't support proshipping though.       
 
 
 DNI:        
