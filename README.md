@@ -6,6 +6,8 @@ Hi, I do art and chill on PT :3.
 
 22 :D
 
+W2I is highly encouraged since I'm off-tab most of the time. If you see me moving like crazy I'm 99% there.
+
 I play as Dabi or Shoto most of the time but I do have other cosplays and ocs. 
 Don't be scared to talk to me! I got by Dolly or Bim! I use he/him. ^^
 
