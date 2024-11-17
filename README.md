@@ -11,4 +11,3 @@ Fandoms: MHA, JJBA, Monster Ladies/Men, uhhh some other things.
 
 DNI: Proshippers, Whitewashers / Racists, Pedos/Necro/Animal doers/defenders, Ableists, Minors
 
-**I have a partner. Don't be weird.**
